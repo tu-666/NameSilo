@@ -1,5 +1,3 @@
-# NameSilo
-NameSilo 优惠码｜2026 最新 NameSilo 域名注册优惠活动、价格表与测评
 ## NameSilo 简介
 
 NameSilo 是 2009 年成立、总部位于美国亚利桑那州的 ICANN 认证域名注册商。长期以来凭借透明定价、无隐藏收费在站长与域名投资人圈子广受认可。
@@ -10,7 +8,7 @@ NameSilo 支持 400 + 域名后缀，覆盖.com、.net 等通用域名以及大�
 
 ## NameSilo 官网地址
 
-NameSilo 官方网站：[https://www.namesilo.com/?rid=2175b31hy](https://www.namesilo.com/?rid=2175b31hy)
+NameSilo 官方网站：[https://www.namesilo.com/?rid=5adc217sp](https://www.namesilo.com/?rid=5adc217sp)
 
 ## NameSilo 2026 优惠码
 
@@ -18,7 +16,7 @@ NameSilo 官方网站：[https://www.namesilo.com/?rid=2175b31hy](https://www.na
 
 ### 常规优惠码
 
-优惠码：**SAVE1**
+优惠码：**vip6688**
 优惠内容：新注册.com 域名减免 1 美元
 适用范围：仅限.com 域名首次注册
 使用方式：在结账页面输入优惠码，系统自动扣减金额
@@ -47,7 +45,7 @@ NameSilo 官方网站：[https://www.namesilo.com/?rid=2175b31hy](https://www.na
 | .us | $5.99 | $5.99 | $5.99 | 美国本地域名，注册续费同价 |
 | .io | $39.99 | $39.99 | $39.99 | 开发者、科技项目常用 |
 
-购买入口：[https://www.namesilo.com/?rid=2175b31hy](https://www.namesilo.com/?rid=2175b31hy)
+购买入口：[https://www.namesilo.com/?rid=5adc217sp](https://www.namesilo.com/?rid=5adc217sp)
 
 ### NameSilo 价格策略要点
 
